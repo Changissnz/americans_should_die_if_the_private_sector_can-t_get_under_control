@@ -1,7 +1,14 @@
 # Americans Should Die If The Private Sector Can't Get Under Control
 ## written by Richard Pham 
 
-A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now.
+A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now. 
+The content of the site, at least the accounts I was keeping up with, adds strong evidence to how 
+low the prospects of American white-collar work has become, due to the now much dreaded phrase, used 
+as explanation for economic precarity, fraud, stock market manipulation, and a host of other problems. 
+Just so there are no faulty guesses on what that term is, the term is "artificial intelligence". There 
+are grown-ass men on there, still on it with casuistry. There are phony marketers, split between males 
+and females. Really colorful assortment of people. The skin-deep diversity is more than the quality of 
+content. 
 ---------------------------------------------------------------------------------------------------
 
 ![alt text](Ember_Spiral_Firebending_Poster.png)
