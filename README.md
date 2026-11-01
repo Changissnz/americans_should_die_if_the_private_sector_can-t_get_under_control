@@ -1,6 +1,3 @@
-# Americans Should Die If The Private Sector Can't Get Under Control
-## written by Richard Pham 
-
 ### About the article: 
 A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now. 
 The content of the site, at least the accounts I was keeping up with, adds strong evidence to how 
@@ -10,6 +7,9 @@ Just so there are no faulty guesses on what that term is, the term is "artificia
 are grown-ass men on there, still on it with casuistry. There are phony marketers, split between males 
 and females. Really colorful assortment of people. The skin-deep diversity is more than the quality of 
 content. 
+
+# Americans Should Die If The Private Sector Can't Get Under Control
+## written by Richard Pham 
 
 ---------------------------------------------------------------------------------------------------
 
