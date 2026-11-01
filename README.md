@@ -9,6 +9,7 @@ Just so there are no faulty guesses on what that term is, the term is "artificia
 are grown-ass men on there, still on it with casuistry. There are phony marketers, split between males 
 and females. Really colorful assortment of people. The skin-deep diversity is more than the quality of 
 content. 
+
 ---------------------------------------------------------------------------------------------------
 
 ![alt text](Ember_Spiral_Firebending_Poster.png)
