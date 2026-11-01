@@ -1,6 +1,7 @@
 # Americans Should Die If The Private Sector Can't Get Under Control
 ## written by Richard Pham 
 
+### About the article: 
 A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now. 
 The content of the site, at least the accounts I was keeping up with, adds strong evidence to how 
 low the prospects of American white-collar work has become, due to the now much dreaded phrase, used 
