@@ -4,7 +4,7 @@
 A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now.
 ---------------------------------------------------------------------------------------------------
 
-![alt text](Ember Spiral Firebending Poster.png)
+![alt text](Ember_Spiral_Firebending_Poster.png)
 
 **These are simply my opinions and conclusions. I am not a professional economist or part of any financial institution.**  
 
