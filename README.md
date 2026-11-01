@@ -4,6 +4,8 @@
 A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now.
 ---------------------------------------------------------------------------------------------------
 
+![alt text](Ember Spiral Firebending Poster.png)
+
 **These are simply my opinions and conclusions. I am not a professional economist or part of any financial institution.**  
 
 The year is 2026. At this point in time, there is very little doubt in the minds of sane and honest people on the problems 
