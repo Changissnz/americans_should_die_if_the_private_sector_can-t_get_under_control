@@ -1,4 +1,5 @@
 # Americans Should Die If The Private Sector Can't Get Under Control
+## written by Richard Pham 
 
 A LinkedIn article I wrote on 10/29/26. I will not be using that social media site for a while now.
 ---------------------------------------------------------------------------------------------------
